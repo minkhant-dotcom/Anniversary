@@ -1,1 +1,1 @@
-https://minkhant-dotcom.io.com
+https://minkhant-dotcom.github.io/Anniversary/
