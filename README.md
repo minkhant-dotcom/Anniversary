@@ -1,1 +1,1 @@
-minkhant-dotcom.io.com
+https://minkhant-dotcom.io.com
